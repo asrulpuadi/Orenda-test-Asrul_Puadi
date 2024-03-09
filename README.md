@@ -1,0 +1,1 @@
+jawaban tes orenda soak logikal test
